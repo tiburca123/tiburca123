@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tiburca123
+- 👀 I’m interested in study
+- 🌱 I’m currently learning HTML, JAVASCRIPT
+- 💞️ I’m looking to collaborate on for other people to learn
+- 📫 How to reach me Instagram, Whatssap
